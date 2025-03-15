@@ -1,6 +1,6 @@
-# Quran Chapter 62 | [QuranBookk.com](http://www.quranbookk.com/) 
+# [Quran Chapter 101](https://www.quranbookk.com/quran/search?q=101:) | QuranBookk.com 
 
-For more infos, Click [QuranBookk - 62](https://www.quranbookk.com/quran/search?q=62:) to Search at [QuranBookk.com](http://quranbookk.com/)
+For more infos, Click [QuranBookk - 101](https://www.quranbookk.com/quran/search?q=101:) to Search at [QuranBookk.com](http://quranbookk.com/)
 
 
 # QuranBookk.com - Quran | [QuranBook](https://www.quranbookk.com)
